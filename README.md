@@ -1,0 +1,2 @@
+# bagus
+selalu yang terdepan
